@@ -1,1 +1,1 @@
-# two sides non stop sliders
+# Non-Stop Monkey + Logo Sliders
